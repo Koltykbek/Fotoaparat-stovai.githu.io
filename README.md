@@ -1,0 +1,1 @@
+# Fotoaparat-stovai.githu.io
